@@ -1,0 +1,1 @@
+Domla berilagan joygacha bajardim
